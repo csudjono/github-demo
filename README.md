@@ -1,9 +1,1 @@
-Hello world
-
-This is SPARTA!
-I need a drink!!!
-yo what's up rockitheads
-write something on line 3
-Waka Waka
-
-I hope this works.
+WTF!!!  This is how life works sometimes...I modified it like a champ...not a chump
